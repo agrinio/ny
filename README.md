@@ -1,0 +1,4 @@
+ny
+==
+
+Cryptocurrency coin
